@@ -9,3 +9,6 @@ o((>ω< ))o
 | ------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------- |
 | ![Image 4](https://github.com/user-attachments/assets/715e5c12-554e-4f87-ae8a-ca490d6bdc89) | ![e2a68ace-55f1-49e0-ab81-ca6edeb40a3d](https://github.com/user-attachments/assets/e6ec15f0-23c2-4c10-8a4a-7bdbee22a5d1) |![c10849f4-f4c2-4ad8-9a08-af547d8c6311](https://github.com/user-attachments/assets/2a176d29-ff0c-4d53-aa3d-631b632e24ae)|
 
+
+
+Join the discord: https://discord.gg/KbNbhwJNEy
