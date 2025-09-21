@@ -1,3 +1,3 @@
-# We Love Tomboys
+# We Love Tomboys 💖
 
-☆*: .｡. o(≧▽≦)o .｡.:*☆
+o((>ω< ))o
